@@ -19,4 +19,4 @@ Edindiği bilgisayarın tüm özelliklerinden yararlanmak, sesli ve görüntül�
 Siz de dijital dünyaya açılan kapılardan biri olan bilgisayarlardan kendinize uygun modeli almayı planlıyorsanız, elektronik kategorisi üzerinden ürünleri inceleyebilir, Trendyol’un bütçe dostu bilgisayar fiyatları ile dilediğiniz modeli hemen satın alabilirsiniz.
 
 Uygunbana.com 'dan en ucuz Windows 10 Pro Lisans Anahtarını Satın Al 
-https://uygunbana.com/urun/windows-10-pro-dijital-lisans-anahtari/
+[Windows 10 Pro satın al](https://uygunbana.com/urun/windows-10-pro-dijital-lisans-anahtari/)
